@@ -1,1 +1,1 @@
-## Eid Fitr Mubarak 🎉♥
+## Eid Mubarak 🎉♥
